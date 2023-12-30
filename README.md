@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Ayush Thakur 
+- 🌱 I’m currently learning Web and python 
+- 💞️ I’m looking for a partner 
+- 📫 insta- @ayush.thakur1107
