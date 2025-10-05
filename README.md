@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently devloping my skills <br>I'm currently learning web development and python<br>I'm tryna be <i> jake of trades </i> in programming 
+I'm currently devloping my skills <br>I'm currently learning Mern Stack<br>I'm tryna be <i> jake of trades </i> in programming 
 
 
 ## 🌐 Socials:
