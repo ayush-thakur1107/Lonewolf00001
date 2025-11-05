@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am working on levelling up my skills<br>oscillating in the spectrum of peak self hatred and narcissism<br>jack of trades master of.. idk just enjoyingthe shit i do <br>1st year computer science student
+i am working on levelling up my skills<br>oscillating in the spectrum of peak self hatred and narcissism<br>jack of trades master of.. idk just enjoying the shit i do <br>1st year computer science student
 
 
 ## 🌐 Socials:
